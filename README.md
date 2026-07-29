@@ -1,5 +1,8 @@
 <div align="center">
 
+<img width="540" height="300" alt="f060026b40029ea94d03255a17e26daa" src="https://github.com/user-attachments/assets/819c5876-f855-4021-9280-dfaa42c40610" />
+
+
 <img width="2048" height="123" alt="tumblr_bf4661888dec560a0dc31f0c5b79ee77_ec54c6ae_2048" src="https://github.com/user-attachments/assets/c6b41806-02de-48b9-bbd9-aac077274ba9" />
 
 ### $\color{#649847}{\textsf{ ⚠︎  ⬞  ִ  Txt 𓈒 𓈒 𓈒 }}$ <br>
