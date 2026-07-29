@@ -7,7 +7,7 @@
 
 ## $\color{#649847}{\textsf{ ⌑ ྀ ⋆ Info About Me ! ៸៸៸ }}$ <br>
   
-###### 𔔀 Description ⚟
+###### 𔔀 \(mention): 1. TD/CD 2. Kins 3. MEEEE KEEZE 4. Antisocial ⚟
 
 ###### ⤿ Identities : Transgender, Aroace, Gay male 𓏼
 
