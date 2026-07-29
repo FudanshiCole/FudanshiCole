@@ -5,7 +5,7 @@
 
 <img width="2048" height="123" alt="tumblr_bf4661888dec560a0dc31f0c5b79ee77_ec54c6ae_2048" src="https://github.com/user-attachments/assets/c6b41806-02de-48b9-bbd9-aac077274ba9" />
 
-## $\color{#649847}{\textsf{ ⌑ ྀ ⋆ Info About Me ! ៸៸៸ }}$ <br>
+# $\color{#649847}{\textsf{ ⌑ ྀ ⋆ Info About Me ! ៸៸៸ }}$ <br>
   
 ###### 𔔀 Uh I have a TD and CD so please don't get to close, I also am really antisocial so like... Probably don't try and interact with me unless you're someone I know... 🥹  Uh I'm a kinnie of Katsuki bakugo and a ship kinnie of Crowley x Aziraphale.. My profile was made by my sibling \(@Keeeleykeeze) so thanks to them 😼 ⚟
 
