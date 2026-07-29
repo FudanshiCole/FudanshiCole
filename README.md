@@ -1,8 +1,12 @@
 <div align="center">
 
+<img width="2048" height="123" alt="tumblr_bf4661888dec560a0dc31f0c5b79ee77_ec54c6ae_2048" src="https://github.com/user-attachments/assets/c6b41806-02de-48b9-bbd9-aac077274ba9" />
+
 ### $\color{#649847}{\textsf{ ⚠︎  ⬞  ִ  Txt 𓈒 𓈒 𓈒 }}$ <br>
   
 ###### Description
+
+<img width="2048" height="123" alt="tumblr_bf4661888dec560a0dc31f0c5b79ee77_ec54c6ae_2048" src="https://github.com/user-attachments/assets/c6b41806-02de-48b9-bbd9-aac077274ba9" />
 
 <!--
 **FudanshiCole/FudanshiCole** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
