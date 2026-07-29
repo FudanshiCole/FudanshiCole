@@ -5,7 +5,7 @@
 
 <img width="2048" height="123" alt="tumblr_bf4661888dec560a0dc31f0c5b79ee77_ec54c6ae_2048" src="https://github.com/user-attachments/assets/c6b41806-02de-48b9-bbd9-aac077274ba9" />
 
-### $\color{#649847}{\textsf{ ⌑ ྀ ⋆ Txt ៸៸៸ }}$ <br>
+### $\color{#649847}{\textsf{ ⌑ ྀ ⋆ Info About Me ៸៸៸ }}$ <br>
   
 ###### 𔔀 Description ⚟
 
