@@ -7,7 +7,7 @@
 
 ## $\color{#649847}{\textsf{ ⌑ ྀ ⋆ Info About Me ! ៸៸៸ }}$ <br>
   
-###### 𔔀 \(mention): 1. TD/CD 2. Kins 3. MEEEE KEEZE 4. Antisocial ⚟
+###### 𔔀 Uh I have a TD and CD so please don't get to close, I also am really antisocial so like... Probably don't try and interact with me unless you're someone I know... 🥹  Uh I'm a kinnie of Katsuki bakugo and a ship kinnie of Crowley x Aziraphale ⚟
 
 ###### ⤿ Identities : Transgender, Aroace, Gay male 𓏼
 
