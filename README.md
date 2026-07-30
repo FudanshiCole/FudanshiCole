@@ -7,7 +7,7 @@
 
 # $\color{#649847}{\textsf{ ⌑ ྀ ⋆ Info About Me ! ៸៸៸ }}$ <br>
   
-###### 𔔀 Uh I have a TD and CD so please don't get to close, I also am really antisocial so like... Probably don't try and interact with me unless you're someone I know... 🥹  Uh I'm a kinnie of Katsuki bakugo and a ship kinnie of Crowley x Aziraphale.. My profile was made by my sibling \(@Keeeleykeeze) so thanks to them 😼 ⚟
+###### 𔔀 Uh I have a TD and CD so please don't get to close, I also am really antisocial so like... ( I WILL INTERACT IF MY INTRESTS ARE BROUGHT UP PLEASE ASK I BEG. ) Probably don't try and interact with me unless you're someone I know... 🥹  Uh I'm a kinnie of Katsuki bakugo and a ship kinnie of Crowley x Aziraphale.. My profile was made by my sibling \(@Keeeleykeeze) so thanks to them 😼 ⚟
 
 ###### ⤿ Identities : Transgender, Aroace, Gay male 𓏼
 
