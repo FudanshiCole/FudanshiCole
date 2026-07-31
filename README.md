@@ -11,9 +11,9 @@
 
 ###### 𔔀 i will list my fandoms / things i like , PLEASE INT , COLE (me) NEEDS FRIENDS LIKE BADLY. (note: only int if you are in the age range of 12-16 as i am uncomfortable talking with adults and younger children !! ) ⚟
 
-###### 𔔀 Sally Face , Good Omens , Five Nights At Freddy's , My Hero Academia , Hasbin Hotel (i am not nor do i associate with the problematic side of this fandom.) , Dandy's World (same as HH) , The Amazing Digital Circus , Gravity Falls , Dead Plate , Epic The Musical , Forsaken (same as HH) , Don't Hug Me I'm Scared , Yan Sim (same with HH) , Steven Universe , My Little Pony , Opossums , Subspace (specifically only him) , Black Butler (only the first season, have yet to finish it.) , How To Train Your Dragon , ENA , Hatsune Miku ,  ⚟
+###### 𔔀 Sally Face , Good Omens , Five Nights At Freddy's , My Hero Academia , Hasbin Hotel (i am not nor do i associate with the problematic side of this fandom.) , Dandy's World (same as HH) , The Amazing Digital Circus , Gravity Falls , Dead Plate , Epic The Musical , Forsaken (same as HH) , Don't Hug Me I'm Scared , Yan Sim (same with HH) , Steven Universe , My Little Pony , Opossums , Subspace (specifically only him) , Black Butler (only the first season, have yet to finish it.) , How To Train Your Dragon , ENA , Hatsune Miku , Adopt Me , The Amazing World Of Gumball , My Own Ocs , Hamilton The Musical , The Titanic (just as a topic not the movie) , The Boys (youtubers) , Brandon Farris and Cameron Domasky , Alice In Wonderland (both live action and og) , Mr Plant And Argos , The Mourner , Zootopia , AND. Mouth Washing (will more then likely add more, do not mention spelling mistakes to Cole, he does not care-) ⚟
 
-###### ⤿ Identities : Transgender, Aroace, Gay male 𓏼
+###### ⤿ Identities : Transgender, Aroace, Gay male (questioning more?) 𓏼 
 
 <img width="2048" height="123" alt="tumblr_bf4661888dec560a0dc31f0c5b79ee77_ec54c6ae_2048" src="https://github.com/user-attachments/assets/c6b41806-02de-48b9-bbd9-aac077274ba9" />
 
