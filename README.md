@@ -1,6 +1,6 @@
 <div align="center">
 
-
+![](https://komarev.com/ghpvc/?username=FudanshiCole&color=green&abbreviated=true)
 
 <img width="540" height="300" alt="f060026b40029ea94d03255a17e26daa" src="https://github.com/user-attachments/assets/819c5876-f855-4021-9280-dfaa42c40610" />
 
