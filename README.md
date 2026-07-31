@@ -11,7 +11,7 @@
 
 ###### 𔔀 i will list my fandoms / things i like , PLEASE INT , COLE (me) NEEDS FRIENDS LIKE BADLY. (note: only int if you are in the age range of 12-16 as i am uncomfortable talking with adults and younger children !! ) ⚟
 
-###### 𔔀 Sally Face , Good Omens , Five Nights At Freddy's , My Hero Academia , Hasbin Hotel (i am not nor do i associate with the problematic side of this fandom.) , Dandy's World (same as HH) , The Amazing Digital Circus , Gravity Falls , Dead Plate , Epic The Musical , Forsaken (same as HH) , Don't Hug Me I'm Scared , Yan Sim (same with HH) , Steven Universe , My Little Pony ,  ⚟
+###### 𔔀 Sally Face , Good Omens , Five Nights At Freddy's , My Hero Academia , Hasbin Hotel (i am not nor do i associate with the problematic side of this fandom.) , Dandy's World (same as HH) , The Amazing Digital Circus , Gravity Falls , Dead Plate , Epic The Musical , Forsaken (same as HH) , Don't Hug Me I'm Scared , Yan Sim (same with HH) , Steven Universe , My Little Pony , Opossums , Subspace (specifically only him) , Black Butler (only the first season, have yet to finish it.) , How To Train Your Dragon , ENA , Hatsune Miku ,  ⚟
 
 ###### ⤿ Identities : Transgender, Aroace, Gay male 𓏼
 
