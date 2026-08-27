@@ -9,7 +9,7 @@
 
 # $\color{#649847}{\textsf{ ⌑ ྀ ⋆ Info About Me ! ៸៸៸ }}$ <br>
   
-###### 𔔀 Uh I have a TD and CD so please don't get to close, I also am really antisocial so like... ( I WILL INTERACT IF MY INTRESTS ARE BROUGHT UP PLEASE ASK I BEG. ) Probably don't try and interact with me unless you're someone I know... 🥹  Uh I'm a kinnie of Katsuki bakugo and a ship kinnie of Crowley x Aziraphale.. My profile was made by my sibling \(@Keeeleykeeze) so thanks to them 😼 ⚟
+###### ▯ Uh I have a TD and CD so please don't get to close, I also am really antisocial so like... ( I WILL INTERACT IF MY INTRESTS ARE BROUGHT UP PLEASE ASK I BEG. ) Probably don't try and interact with me unless you're someone I know... 🥹  Uh I'm a kinnie of Katsuki bakugo and a ship kinnie of Crowley x Aziraphale.. My profile was made by my sibling \(@Keeeleykeeze) so thanks to them 😼 ៸៸៸
 
 ###### 𔔀 i will list my fandoms / things i like , PLEASE INT , COLE (me) NEEDS FRIENDS LIKE BADLY. (note: only int if you are in the age range of 12-16 as i am uncomfortable talking with adults and younger children !! ) ⚟
 
