@@ -1,6 +1,6 @@
 <div align="center">
 
-###### <ins>[My Strawpage!!](https://fudanshicole.straw.page/)
+###### <a href="https://fudanshicole.straw.page/"><img src="https://img.shields.io/badge/%E2%98%85%20My Strawpage!!-000000?style=flat-square&labelColor=000000&color=000000"></a>
  
 
 ![](https://komarev.com/ghpvc/?username=FudanshiCole&color=green&abbreviated=true)
