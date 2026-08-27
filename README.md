@@ -9,9 +9,9 @@
 
 # $\color{#649847}{\textsf{ ⌑ ྀ ⋆ Info About Me ! ៸៸៸ }}$ <br>
   
-###### ▯ Uh I have a TD and CD so please don't get to close, I also am really antisocial so like... ( I WILL INTERACT IF MY INTRESTS ARE BROUGHT UP PLEASE ASK I BEG. ) Probably don't try and interact with me unless you're someone I know... 🥹  Uh I'm a kinnie of Katsuki bakugo and a ship kinnie of Crowley x Aziraphale.. My profile was made by my sibling \(@Keeeleykeeze) so thanks to them 😼 ៸៸៸
+###### 𔔀 Uh I have a TD and CD so please don't get to close, I also am really antisocial so like... ( I WILL INTERACT IF MY INTRESTS ARE BROUGHT UP PLEASE ASK I BEG. ) Probably don't try and interact with me unless you're someone I know... 🥹  Uh I'm a kinnie of Katsuki bakugo and a ship kinnie of Crowley x Aziraphale.. My profile was made by my sibling \(@Keeeleykeeze) so thanks to them 😼 ⚟
 
-###### 𔔀 i will list my fandoms / things i like , PLEASE INT , COLE (me) NEEDS FRIENDS LIKE BADLY. (note: only int if you are in the age range of 12-16 as i am uncomfortable talking with adults and younger children !! ) ⚟
+###### ▯ i will list my fandoms / things i like , PLEASE INT , COLE (me) NEEDS FRIENDS LIKE BADLY. (note: only int if you are in the age range of 12-16 as i am uncomfortable talking with adults and younger children !! ) ៸៸៸
 
 ###### ⤿ Sally Face , Good Omens , Five Nights At Freddy's , My Hero Academia , Hasbin Hotel (i am not nor do i associate with the problematic side of this fandom.) , Dandy's World (same as HH) , The Amazing Digital Circus , Gravity Falls , Dead Plate , Epic The Musical , Forsaken (same as HH) , Don't Hug Me I'm Scared , Yan Sim (same with HH) , Steven Universe , My Little Pony , Opossums , Subspace (specifically only him) , Black Butler (only the first season, have yet to finish it.) , How To Train Your Dragon , ENA , Hatsune Miku , Adopt Me , The Amazing World Of Gumball , My Own Ocs , Hamilton The Musical , The Titanic (just as a topic not the movie) , The Boys (youtubers) , Brandon Farris and Cameron Domasky , Alice In Wonderland (both live action and og) , Mr Plant And Argos , The Mourner , Zootopia , AND. Mouth Washing (will more then likely add more, do not mention spelling mistakes to Cole, he does not care-) 𓏼 
 
